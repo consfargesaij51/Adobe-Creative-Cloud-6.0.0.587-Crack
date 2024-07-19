@@ -1,0 +1,1 @@
+# Adobe-Creative-Cloud-6.0.0.587-Crack
